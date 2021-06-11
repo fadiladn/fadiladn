@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Fadila Desnita
 - 👀 I’m interested in Space, Movie, Music, Science & Tech, Art, and a lot more
-- 🌱 I’m currently learning Geophysics in Gadjah Mada University
+- 🌱 I’m currently learning Geophysics at Gadjah Mada University
 - 💞️ I’m looking to collaborate on Anything good
 - 💋 Pronoun : She/Her
 - 📫 How to reach me, email : fadiladesnita@gmail.com
